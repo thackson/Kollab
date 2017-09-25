@@ -1,1 +1,1 @@
-# SCU-Grad-Course-Equivalency-Project
+# Kollab
